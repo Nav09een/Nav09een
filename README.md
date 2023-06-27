@@ -14,7 +14,7 @@
 
 - 📫 How to reach me **vickysivanaveen166@gmail.com**
 
-- ⚡ Fun fact **I am FUNNY**
+- ⚡ Hobbies **Listening to music**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
